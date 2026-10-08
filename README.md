@@ -1,5 +1,5 @@
 <p align="center">
-wipppp sign mi <a href="https://indi.atabook.org/?page=1">ata</a>
+MY ATA BOOK <a href="https://reapero.atabook.org/?page=1">ata</a>
 <p align="center">
 
 <p align="center">
@@ -7,7 +7,7 @@ wipppp sign mi <a href="https://indi.atabook.org/?page=1">ata</a>
 </p>
 </p>
 <p align="center">
-  shinkyoots
+  HELPPPP MEEEEEEEEEEEEEEEEEEEEE
   <p align="center">
     <p align="center">
 <img src="https://user42110.na.imgto.link/public/20261008/3d537a82403afdf86971fe51-screenshot-2026-09-27-014352.avif"/>
