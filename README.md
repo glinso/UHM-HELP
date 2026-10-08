@@ -1,9 +1,6 @@
 <p align="center">
 MY ATA BOOK <a href="https://reapero.atabook.org/?page=1">ata</a>
 <p align="center">
-
-<p align="center">
-  <a href=https://lndigo.straw.page>straw</a> , <a href=https://rentry.co/shadoe>rentry</a> , <a href=https://rentry.co/shababy>matching rentry</a>
 </p>
 </p>
 <p align="center">
