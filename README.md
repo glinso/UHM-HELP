@@ -10,7 +10,7 @@ MY ATA BOOK <a href="https://reapero.atabook.org/?page=1">ata</a>
   HELPPPP MEEEEEEEEEEEEEEEEEEEEE
   <p align="center">
     <p align="center">
-<img src="https://user42110.na.imgto.link/public/20261008/3d537a82403afdf86971fe51-screenshot-2026-09-27-014352.avif"/>
+<img src="https://yourimageshare.com/ib/MLtbbIiiAj"/>
   <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mqea4bkl2xh4sm6chwi3ubqs4m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=03040c&interchange=true&profanity=false&hide_remaster=false&bar_color=6912d3&bar_color_cover=false">
